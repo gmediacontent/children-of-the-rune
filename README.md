@@ -1,1 +1,2 @@
-# children-of-the-rune
+# Children of the Rune
+Oh, jeune garçon, fais en sorte de survivre ! Après que son oncle a causé la chute de sa famille, la seule chose qui restait au jeune Boris était l’épée familiale, « Winterer ». Mais qui aurait pu penser que ce trésor deviendrait bientôt la cause d’une nouvelle crise ? Chaque fois que des personnes s’en prenaient à « Winterer », le cœur de Boris devenait plus froid et plus morne, comme l’hiver lui-même… Le voyage de Boris commença alors. Survivre. Protéger l’épée familiale. Qu’est-ce qui l’attend au bout de ce voyage ? Quels sont les secrets de l’épée d’hiver, « Winterer » ?
